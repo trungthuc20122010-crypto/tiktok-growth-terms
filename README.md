@@ -22,4 +22,4 @@ Người dùng tự chịu trách nhiệm về việc sử dụng ứng dụng v
 
 6. Liên hệ
 
-Email hỗ trợ: [điền email liên hệ thật của chồng]
+Email hỗ trợ: [trungthuc20122010@gmail.com ]
